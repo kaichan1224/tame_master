@@ -12,6 +12,6 @@
 - 動物全部捕まえてモンスターマスターを目指せ!!
 
 # ゲーム動画
-
+https://www.youtube.com/watch?v=lt9nhqYuJAg
 
 
